@@ -4,7 +4,8 @@ I'm Graciela, pronounced 'Gracie-Ella' but you can call me Gracie if you'd like.
 🌱 Currently in a coding bootcamp through UC Davis, learning the things.
 
 🎈 Favorite things to do is go fishing🎣, read books📖, huge 🎞️ movie buff and watch american NFL football🏈 GO RAIDERS.
-"I speak fluent movie quotes."
+
+😏 Me: "I speak fluent movie quotes."
 
 📫 How to reach me 
 email: graciela.mejia1@yahoo.com
