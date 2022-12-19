@@ -1,9 +1,9 @@
 👋 Hola! 
 I'm Graciela, pronounced 'Gracie-Ella' but you can call me Gracie if you'd like. Either is fine with me.
 
-🌱 Recently completed a full stack coding bootcamp at UC Davis.
+🌱 Recently completed a full stack coding bootcamp at UC Davis Continuing and Professional Education. AH, I'm so excited!!
 
-🎈 Favorite things to do is go fishing🎣, read books📖, huge 🎞️ movie buff and watch american NFL football🏈 GO RAIDERS.
+🎈 A few of my favorite things to do, besides coding: go fishing🎣 specifically bass fishing, read books📖 I read any chance I can get, I'm a huge 🎞️ movie buff catch me at the theatre.
 
 😏 Me: "I speak fluent movie quotes."
 
